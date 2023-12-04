@@ -1,5 +1,5 @@
 - Hi , im aleexszn
-- CyberSecurity & Proggramation Student
+- CyberSecurity & Programation Student
 - Business CiberSecurity Auditor Wannabe
 About my knowledge:
 
