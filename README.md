@@ -1,3 +1,0 @@
-- Hi , im aleexszn
-- CyberSecurity & Proggramation Student
-- Business CiberSecurity Wannabe
